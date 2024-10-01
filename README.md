@@ -1,7 +1,3 @@
 # NK
 
-
-
-# gjhhf
-
 # fgdfgdfgdf
